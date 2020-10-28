@@ -19,3 +19,6 @@ I promise to myself I'll create a background from Drawbot everyday and update he
 
 ### 2020/10/28: Yayyy! Some artsy stuff started appearing!
 <img src="20201028.gif" width="200">
+
+### 2020/10/29: I'm so in love with this spiral thing. 
+<img src="20201029.gif" width="200">
